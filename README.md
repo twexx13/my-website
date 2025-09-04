@@ -1,3 +1,3 @@
-💻TO OPEN THIS PUBLIC PAGE, CLICK ON 👉🏻 https://github.com/twexx13
+💻TO OPEN THIS PUBLIC PAGE, CLICK ON 👉🏻 https://my-website.github.io/
 
 # my-website
